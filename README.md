@@ -209,4 +209,4 @@ Naval Strike is provided as a full free version with all features and updates in
 Get ready for exhilarating aerial battles—download Naval Strike today and join the fight!
 
 ---
-**Last updated:** 2026-09-17 23:20:53 UTC
+**Last updated:** 2026-09-18 02:56:05 UTC
